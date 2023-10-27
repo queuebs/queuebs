@@ -3,7 +3,7 @@ lets play a little game
 
 
 
-its like words-with-friends,
+its works like words-with-friends,
 except no, it does not
 
 submit a clip (or 3 pic slideshow) of her having fun with ice cubes.
