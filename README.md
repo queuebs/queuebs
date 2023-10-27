@@ -7,7 +7,7 @@ its works like words-with-friends,
 ---
 except no, it does not
 
-submit a clip (or 3 pic slideshow) of her having fun with ice cubes.
+submit a clip (max 30sec) or slideshow (3 sequential pics) of her having fun with ice cubes.
 ---
 ![image](https://github.com/queuebs/queuebs/assets/149130028/91987227-380c-49a8-a6d2-4c48265f0f27)
 
