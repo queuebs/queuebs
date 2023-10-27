@@ -13,6 +13,9 @@ Fun ice cubes
 https://th.bing.com/th/id/OIP.pDoBhDNet29JtT1a9vaJ0AHaHa?w=164&h=180&c=7&r=0&o=5&dpr=1.8&pid=1.7
 
 the bigger the better
+![grenade](https://github.com/queuebs/queuebs/blob/main/grenade_icve_cube.jpg)
+
+
 https://i.pinimg.com/originals/58/c7/f9/58c7f9c1bf85e8112b15b634cbe05f5b.jpg
 
 submit your content (NO FACES, violations will be removed) to Xqueuebs https://twitter.com/Xqueuebs
